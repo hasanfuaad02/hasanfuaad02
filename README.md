@@ -1,4 +1,4 @@
-![image](https://github.com/hasanfuaad02/hasanfuaad02/assets/97466505/f6d90fe0-faa2-4ece-97e1-9f024bff4d7c)![image]
+https://github.com/hasanfuaad02/hasanfuaad02/blob/main/1669788304539.jpg
 
 
 # Hasan Fuaad
