@@ -1,4 +1,4 @@
-![image](https://github.com/hasanfuaad02/hasanfuaad02/assets/97466505/f6d90fe0-faa2-4ece-97e1-9f024bff4d7c)![image](https://github.com/hasanfuaad02/hasanfuaad02/assets/97466505/ea1ca2c9-d84d-4479-8117-293f0719df0f)![IT Manager & Developer](https://media.licdn.com/dms/image/D4D16AQEqxdBTEWHM2w/profile-displaybackgroundimage-shrink_350_1400/0/1669788304539?e=1705536000&v=beta&t=MWbrJGbfMpwMhRgnOpaQuZE4xU3_ZGTEGonvbBan3Jg)
+![image](https://github.com/hasanfuaad02/hasanfuaad02/assets/97466505/f6d90fe0-faa2-4ece-97e1-9f024bff4d7c)![image]
 
 
 # Hasan Fuaad
