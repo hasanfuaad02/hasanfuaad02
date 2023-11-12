@@ -11,13 +11,13 @@ an IT professional from Yemen with a passion. I do content on information techno
  
 ## Examples of Work
 <img src="https://github.com/hasanfuaad02/hasanfuaad02/blob/main/1669788304539.jpg" width="240" >
-<a href="https://youtu.be/VdzbGUNF5X0?si=SQNEhPf6vUXpGY63
+<a href="https://www.youtu.be/VdzbGUNF5X0?si=SQNEhPf6vUXpGY63
 " target="_blank"><img src="http://img.youtube.com/vi/SQNEhPf6vUXpGY63/0.jpg" 
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
-<a href="https://youtu.be/VMBFZBXumMg?si=uK5F_eSEBwzN_7tc
+<a href="https://www.youtu.be/VMBFZBXumMg?si=uK5F_eSEBwzN_7tc
 " target="_blank"><img src="http://img.youtube.com/vi/uK5F_eSEBwzN_7tc/0.jpg" 
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
-<a href="https://youtu.be/av1EnHJx6zw?si=OJtLiUtYCe0SqhzA
+<a href="https://www.youtu.be/av1EnHJx6zw?si=OJtLiUtYCe0SqhzA
 " target="_blank"><img src="http://img.youtube.com/vi/OJtLiUtYCe0SqhzA/0.jpg" 
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 
