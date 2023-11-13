@@ -9,8 +9,11 @@ an IT professional from Yemen with a passion. I do content on information techno
 ## Skills and Experience 
 
 👨‍💼 Managing
+
 📱 Flutter 
+
 🤖 Python 
+
 🧑‍💻 HTML/CSS
  
 ## Examples of Work
