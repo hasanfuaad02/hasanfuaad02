@@ -2,7 +2,7 @@
 
 
 # Hasan Fuaad
-an IT professional from Yemen with a passion. I do content on information technology and Development. I enjoy learning languages and frameworks like Flutter, and I have experience as an IT project manager. I was also a Google Developers Student Club leader at Saba University in Yemen. 
+IT manager from Yemen with a passion. I do content on information technology and Development. I enjoy learning languages and frameworks like Flutter, and I have experience as an IT project manager. I was also a Google Developers Student Club leader at Saba University in Yemen. 
 - 🔭 I’m currently working on YCIT-HE
 
 
